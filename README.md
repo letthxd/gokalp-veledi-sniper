@@ -1,0 +1,1 @@
+# gokalp-veledi-sniper
